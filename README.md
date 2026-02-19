@@ -1,2 +1,2 @@
 # wanderkashmir
-Visst and enjoy best experience of Kashmir
+Visit and enjoy best experience of Kashmir
